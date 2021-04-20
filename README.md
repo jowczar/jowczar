@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jowczar. I'm a fullstack dev. I use GitHub only for open-source projects I do in my free time!
+- 👀 I’m interested in any challenges, interesting projects, whatever the technology is.
+- 🌱 I’m currently learning project management and leadership skills to hopefully make the world a better place. I am also exploring Machine Learning at a slower pace (why days are so short?! So many things to do, so many things to learn!), and willing to start own startup soon.
+- 📫 How to reach me ~~ jus-owczarek@wp.pl, HMU about anything really, always excited to meet new people!
