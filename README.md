@@ -1,1 +1,1 @@
-Inactive in terms of coding here, HMU if interested in changing the world or just to talk 🥰
+Inactive in terms of coding here (bb ftw)
